@@ -1,1 +1,1 @@
-Hi! I'm Kinoshita.
+Hi! I'm Seiya Kinoshita.
